@@ -1,1 +1,0 @@
-# Game-Samakan-Kartu
